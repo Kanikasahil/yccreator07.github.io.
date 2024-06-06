@@ -1,1 +1,1 @@
-# yccreator07.github.io.
+# yccreator07.github.io
